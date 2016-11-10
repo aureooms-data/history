@@ -1,6 +1,10 @@
-# World War I
+# [World War I](https://www.youtube.com/channel/UCC8VwmyS9IOd_4dq9tNZXZA)
 
-  - [Apocalypse World War I 1/5 - To arms](https://www.youtube.com/watch?v=xO8uhme0o3Y)
+  - [Apocalypse World War I 1/5 - Fury](https://www.youtube.com/watch?v=WYFI7D_GhQM) (mirrors: [a](https://www.youtube.com/watch?v=xO8uhme0o3Y))
+  - [Apocalypse World War I 2/5 - Fear](https://www.youtube.com/watch?v=MtiUwiKeAxE) (mirrors: [a](https://www.youtube.com/watch?v=Fmf4Jrr6Il8))
+  - [Apocalypse World War I 3/5 - Hell](https://www.youtube.com/watch?v=QoBH-0CMUTI)
+  - [Apocalypse World War I 4/5 - Rage](https://www.youtube.com/watch?v=vAtOFE6Kd_M)
+  - [Apocalypse World War I 5/5 - Deliverance](https://www.youtube.com/watch?v=L9bpwzSRoVM)
   
 # Hitler
 
