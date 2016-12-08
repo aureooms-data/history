@@ -13,6 +13,7 @@
 # World War II
 
   - [Apocalypse: The Second World War 1/6 - Aggression (1933-1939)](https://www.youtube.com/watch?v=6t6IKwHpdIQ)
+  - [La Traque des Nazis](https://www.youtube.com/watch?v=3azKQoTzgJ8)
 
 # Vietnam war
 
