@@ -22,3 +22,10 @@
 # Vietnam War
 
   - [Vietnam war: 1945-1975 | The most terrible war in Indochina](https://www.youtube.com/watch?v=BpG2FqVz4bA)
+
+# Governments
+
+  - [Tous les gouvernements nous mentent #ARTE](https://www.youtube.com/watch?v=zEGJRKCSfoY)
+
+# Trump
+  - [Président Donald Trump #ARTE](https://www.youtube.com/watch?v=wthhLtzHQAI)
