@@ -29,3 +29,6 @@
 
 # Trump
   - [Président Donald Trump #ARTE](https://www.youtube.com/watch?v=wthhLtzHQAI)
+  
+# Post-truth
+  - [Fnord-Jahresrückblick (33c3) - english translation](https://www.youtube.com/watch?v=fffr7iSnpA4)
