@@ -1,7 +1,7 @@
 # Anarchy
 
-  - [Ni Dieu ni maître - Une histoire de l'anarchisme (1/2)](http://sites.arte.tv/anarchisme/fr/ni-dieu-ni-maitre-une-histoire-de-lanarchisme-12-anarchie)
-  - [Ni Dieu ni maître - Une histoire de l'anarchisme (2/2)](http://sites.arte.tv/anarchisme/fr/ni-dieu-ni-maitre-une-histoire-de-lanarchisme-22-anarchie)
+  - [Ni Dieu ni maître - Une histoire de l'anarchisme (1/2) [FR]](http://sites.arte.tv/anarchisme/fr/ni-dieu-ni-maitre-une-histoire-de-lanarchisme-12-anarchie)
+  - [Ni Dieu ni maître - Une histoire de l'anarchisme (2/2) [FR]](http://sites.arte.tv/anarchisme/fr/ni-dieu-ni-maitre-une-histoire-de-lanarchisme-22-anarchie)
 
 # [World War I](https://www.youtube.com/channel/UCC8VwmyS9IOd_4dq9tNZXZA)
 
@@ -17,7 +17,11 @@
 
 # Hitler
 
-  - [Apocalypse: Hitler 2/2: Le Führer](https://www.youtube.com/watch?v=KDbu6dqT0T4)
+  - [Apocalypse: Hitler 1-2/2 [FR]](https://www.youtube.com/watch?v=aJdirX9CBek)
+  - [Apocalypse: Hitler 1/2: La Menace [FR]](https://www.youtube.com/watch?v=sNFGOhKy8RM)
+  - [Apocalypse: Hitler 2/2: Le Führer [FR]](https://www.youtube.com/watch?v=KDbu6dqT0T4)
+  - [Apocalypse: Hitler 1/2: The Beginning [EN]](https://www.youtube.com/watch?v=CvgLASeiUl4)
+  - [Apocalypse: Hitler 2/2: The Führer [EN]](https://www.youtube.com/watch?v=jsLL3y8Wyho)
 
 # World War II
 
